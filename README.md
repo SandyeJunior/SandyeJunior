@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :SandyeJunior
+### Boas vindas ao meu perfil : SandyeJunior
 
 Meu nome é Maria Eduarda Sandy 
 
